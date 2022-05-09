@@ -20,4 +20,4 @@ Al terminar, colocamos el envase en una habitación oscura a una temperatura alr
 
 Ya por último, vamos revisando el recipiente, cambiando las servilletas en caso de que se sequen y trasladando las semillas germinadas a tierra o una maceta.
 
-Y así es como germinaríamos una semilla, también hay que expecificar que esto no sirve con todo tipo de semillas ya que algunas necesitas de otros productos o cuidados distintos, pero por ejemplo,en mi caso con las de tomate, es un método bueno.
+Y así es como germinaríamos una semilla, también hay que expecificar que esto no sirve con todo tipo de semillas ya que algunas necesitas de otros productos o cuidados distintos, pero por ejemplo, en mi caso con las de tomate, es un método bueno.
