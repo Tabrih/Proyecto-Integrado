@@ -26,7 +26,7 @@ Estos días he estado buscando información sobre el tema que me toca trabajar, 
 ![](https://github.com/Tabrih/Proyecto-Integrado/blob/main/Im%C3%A1genes/IMG-20220505-WA0004.jpg)
 
 Han habido 3 días que he faltado con lo cual en esos días no he podido hacer mucho. Pero al volver, seguí buscando referencias e información al respecto
-y finalmente concretamos las medidas y los materiales que necesitabámos, aquí la lista :
+y, finalmente, concretamos las medidas y los materiales que necesitabámos, aquí la lista :
 
 LISTA DE MATERIALES:
 
