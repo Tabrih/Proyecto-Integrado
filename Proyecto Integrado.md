@@ -58,5 +58,7 @@ Palés, Martillo , Sierra circular, Tornillos, Taladro
 
 Han habido algunas modificaciones, pero en general son éstas medidas. 
 
+Ya con los planos y sabiendo los materiales que necesitamos, comenzamos la construcción con la ayuda de nuestro profesor Leo y de compañeros como Andreé, Ángel, JM y Stiven.
+
 
 
