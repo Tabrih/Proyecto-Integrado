@@ -15,6 +15,16 @@ Comúnmente suele estar construido de madera, aunque también es visto con mater
 
 ## Proyecto 
 
-Estos días he estado buscando información sobre el tema que me toca trabajar, pensando diferentes ideas y haciendo planos sobre el mismo ya que hasta el día 27 no podemos cortar la madera:****
+Estos días he estado buscando información sobre el tema que me toca trabajar, pensando diferentes ideas y haciendo planos sobre el mismo ya que hasta el día 27 no podemos cortar la madera:
+
+![]()
+
+![]()
+
+![]()
+
+![]()
+
+
 
 
