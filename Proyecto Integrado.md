@@ -76,4 +76,6 @@ E aquí el resultado :
 
 ![](https://github.com/Tabrih/Proyecto-Integrado/blob/main/Im%C3%A1genes/IMG-20220505-WA0001.jpg)
 
+Al acabar relativamente rápido, aprovechamos para prepapar la presentación de este mismo proyecto.
+
 
