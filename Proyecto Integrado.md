@@ -60,5 +60,20 @@ Han habido algunas modificaciones, pero en general son éstas medidas.
 
 Ya con los planos y sabiendo los materiales que necesitamos, comenzamos la construcción con la ayuda de nuestro profesor Leo y de compañeros como Andreé, Ángel, JM y Stiven.
 
+Mientras avanzábamos en la construcción, íbamos cortando y marcando las tablas de madera con las medidas necesarias según nuestro plano. Aquí unas imágenes del progreso:      
+
+![](https://github.com/Tabrih/Proyecto-Integrado/blob/main/Im%C3%A1genes/IMG_20220503_125704.jpg)
+
+![](https://github.com/Tabrih/Proyecto-Integrado/blob/main/Im%C3%A1genes/IMG_20220503_125657.jpg)
+
+Andreé y Leo nos ayudaron a cortar las tablas, y entre todos los que mencioné antes juntamos las maderas con brocas y un taladro. 
+
+Por último, barnizamos ya el mueble escalonado y lo finalizamos.
+
+E aquí el resultado :
+
+![](https://github.com/Tabrih/Proyecto-Integrado/blob/main/Im%C3%A1genes/IMG-20220505-WA0002.jpg)
+
+![](https://github.com/Tabrih/Proyecto-Integrado/blob/main/Im%C3%A1genes/IMG-20220505-WA0001.jpg)
 
 
